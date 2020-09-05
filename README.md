@@ -1,0 +1,1 @@
+A simple fried egg recipe for breakfast.
